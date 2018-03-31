@@ -9,3 +9,5 @@
 ## Task 1
 ![](https://sun9-5.userapi.com/c840738/v840738175/6a837/Gu8QIVn33k8.jpg)
 ## Task 2
+![](https://sun9-5.userapi.com/c840738/v840738175/6a845/1lw4GXzM5uw.jpg)
+![](https://sun1-1.userapi.com/c840738/v840738175/6a84c/o5isOuJiP34.jpg)
